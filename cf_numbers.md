@@ -29,8 +29,8 @@
 - Bench Press - 95. MARCH 30, 2015
 - Push Jerk - 85. JANUARY 20, 2015
 - Push Press - 80. SEPTEMBER 30, 2014
-- Strict press - 65. AUGUST 19, 2015
-- Front squat -
+- Strict press - 70. OCTOBER 6, 2015. 65. AUGUST 19, 2015
+- Front squat - ?
 
 8 REP MAX LIFTS
 
