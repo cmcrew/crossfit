@@ -21,6 +21,7 @@
 ###2 REP MAX LIFTS
 
 - Push Press - **95.** OCTOBER, 2015. 95. SEPTEMBER, 2015
+- Bench Press - **105.** OCTOBER, 2015.
 
 ###3 REP MAX LIFTS
 
