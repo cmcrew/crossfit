@@ -15,7 +15,6 @@
 - **DEADLIFT**
 - Deadlift - **180.** DEC 30, 2014
 - Sumo Deadlift - **200.** JUNE 10, 2015
-
 - **OTHER**
 - Thrusters - **100.** JULY 2014
 
