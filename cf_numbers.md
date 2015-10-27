@@ -15,12 +15,13 @@
 - **DEADLIFT**
   - Deadlift - **180.** DEC 30, 2014
   - Sumo Deadlift - **200.** JUNE 10, 2015
+  - Deficit Sum Deadlift - **175.** OCTOBER 26, 2015
 - **OTHER**
   - Thrusters - **100.** JULY 2014
 
 ###2 REP MAX LIFTS
 
-- Push Press - **95.** OCTOBER, 2015. 95. SEPTEMBER, 2015
+- Push Press - **100.** OCTOBER 27, 2015. 95. OCTOBER, 2015. 95. SEPTEMBER, 2015
 - Bench Press - **105.** OCTOBER, 2015.
 
 ###3 REP MAX LIFTS
@@ -31,7 +32,7 @@
   - Overhead Squat - **85.** MAY 19, 2015
 - **PRESS**
   - Bench Press - **95.** JULY 21, 2015. 80. APRIL 4, 2014
-  - Push Press - **90.** MAY 5, 2015
+  - Push Press - **95.** OCTOBER 27, 2015. 90. MAY 5, 2015
   - Strict Press - **70.** AUGUST 2015. 65. JULY 2014
 - **OLY**
   - Hang Clean - **110.** DECEMBER 2014
