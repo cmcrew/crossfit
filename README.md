@@ -26,6 +26,8 @@
 
 ###3 REP MAX LIFTS
 
+- **DEADLIFT**
+  - Deadlift - **185.** OCTOBER 30, 2015
 - **SQUATS**
   - Back Squat - **140.** JUNE 15, 2015
   - Front Squat - **120.** JUNE 8, 2015
