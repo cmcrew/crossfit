@@ -17,12 +17,13 @@
   - Sumo Deadlift - **200.** JUNE 10, 2015
   - Deficit Sum Deadlift - **175.** OCTOBER 26, 2015
 - **OTHER**
-  - Thrusters - **100.** JULY 2014
+  - Thrusters - 105. OCTOBER 2015. 100. JULY 2014
 
 ###2 REP MAX LIFTS
 
 - Push Press - **100.** OCTOBER 27, 2015. 95. OCTOBER, 2015. 95. SEPTEMBER, 2015
 - Bench Press - **105.** OCTOBER, 2015.
+- Thruster - **95.** OCTOBER 2015
 
 ###3 REP MAX LIFTS
 
