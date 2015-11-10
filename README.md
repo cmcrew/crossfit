@@ -1,11 +1,11 @@
 ###1 REP MAX LIFTS
 
 - **SQUATS**
-  - Back Squat - **150.** MAY 25, 2015, 140. DEC 30, 2014
+  - Back Squat - **160.** NOVEMBER 9, 2015. 150. MAY 25, 2015, 140. DEC 30, 2014
   - Front Squat - **120.** MARCH 2015, 115. SEPTEMBER 22, 2014, 110. JUNE 2014
 - **PRESS**
   - Bench - **105**. DEC 30, 2014
-  - Floor Press - **95.** SEPTEMBER 2015 85. MARCH 2014
+  - Floor Press - **105.** NOVEMBER 2015. 95. SEPTEMBER 2015 85. MARCH 2014
   - Push Press - **95.** FEB 3, 2015
   - Strict Press - **75.** SEPTEMBER 2015
 - **OLY**
