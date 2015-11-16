@@ -29,6 +29,7 @@
 
 - **DEADLIFT**
   - Deadlift - **185.** OCTOBER 30, 2015
+  - Sumo Deadlift - **185.** NOVEMBER 2015
 - **SQUATS**
   - Back Squat - **140.** JUNE 15, 2015
   - Front Squat - **120.** JUNE 8, 2015
@@ -68,6 +69,7 @@
 - Row 2K - 7:54.3
 - Row 1K - 3:46
 - Row 500m - 1:51
+- First Muscle Up - NOVEMBER 15, 2015
 
 OLY CLASS r1
 STARTING #’s
