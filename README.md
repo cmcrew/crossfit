@@ -2,18 +2,18 @@
 
 - **SQUATS**
   - Back Squat - **160.** NOVEMBER 9, 2015. 150. MAY 25, 2015, 140. DEC 30, 2014
-  - Front Squat - **120.** MARCH 2015, 115. SEPTEMBER 22, 2014, 110. JUNE 2014
+  - Front Squat - **135.** NOVEMBER 17, 2015. 120. MARCH 2015, 115. SEPTEMBER 22, 2014, 110. JUNE 2014
 - **PRESS**
-  - Bench - **105**. DEC 30, 2014
+  - Bench - **110.** NOVEMBER 2015, 105. DEC 30, 2014
   - Floor Press - **105.** NOVEMBER 2015. 95. SEPTEMBER 2015 85. MARCH 2014
   - Push Press - **95.** FEB 3, 2015
   - Strict Press - **75.** SEPTEMBER 2015
 - **OLY**
-  - Clean N' Jerk - **115.** SEPTEMBER 2015. 110. JUNE 2015
-  - Power clean - **120.** DEC 30, 2014, JUNE 10, 2015
-  - Snatch - **75.** JUNE 2015
+  - Clean N' Jerk - **120.** DECEMBER 5, 2015. 115. SEPTEMBER 2015. 110. JUNE 2015
+  - Power clean - **125.** DECEMBER 2015. 120. DEC 30, 2014, JUNE 10, 2015
+  - Snatch - **80.** DECEMBER 5, 2015. 75. JUNE 2015
 - **DEADLIFT**
-  - Deadlift - **180.** DEC 30, 2014
+  - Deadlift - **205.** NOVEMBER 20, 2015. 180. DEC 30, 2014
   - Sumo Deadlift - **200.** JUNE 10, 2015
   - Deficit Sum Deadlift - **175.** OCTOBER 26, 2015
 - **OTHER**
@@ -23,7 +23,7 @@
 
 - Push Press - **100.** OCTOBER 27, 2015. 95. OCTOBER, 2015. 95. SEPTEMBER, 2015
 - Bench Press - **105.** OCTOBER, 2015.
-- Thruster - **95.** OCTOBER 2015
+- Thruster - **105.** JANUARY 29, 2015. 95. OCTOBER 2015
 
 ###3 REP MAX LIFTS
 
