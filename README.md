@@ -6,7 +6,7 @@
 - **PRESS**
   - Bench - **110.** NOVEMBER 2015, 105. DEC 30, 2014
   - Floor Press - **105.** NOVEMBER 2015. 95. SEPTEMBER 2015 85. MARCH 2014
-  - Push Press - **95.** FEB 3, 2015
+  - Push Press - **105.** FEB 17, 2015. 95. FEB 3, 2015
   - Strict Press - **75.** SEPTEMBER 2015
 - **OLY**
   - Clean N' Jerk - **120.** DECEMBER 5, 2015. 115. SEPTEMBER 2015. 110. JUNE 2015
