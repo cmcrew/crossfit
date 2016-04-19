@@ -41,7 +41,7 @@
 - **OLY**
   - Hang Clean - **110.** DECEMBER 2014
 - **OTHER**
-  - Thrusters - **90.** JANUARY 5, 2015
+  - Thrusters - **95.** APRIL 19, 2015. 90. JANUARY 5, 2015
 
 ###5 REP MAX LIFTS
 
