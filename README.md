@@ -9,7 +9,7 @@
   - Push Press - **105.** FEB 17, 2015. 95. FEB 3, 2015
   - Strict Press - **80.** NOVEMBER 1, 2016. 75. SEPTEMBER 2015
 - **OLY**
-  - Clean N' Jerk - **120.** DECEMBER 5, 2015. 115. SEPTEMBER 2015. 110. JUNE 2015
+  - Clean N' Jerk - **130.** MARCH 26, 2017 (power clean). 120. DECEMBER 5, 2015. 115. SEPTEMBER 2015. 110. JUNE 2015
   - Power clean - **130.** OCTOBER 2016. 125. DECEMBER 2015. 120. DEC 30, 2014, JUNE 10, 2015
   - Snatch - **80.** DECEMBER 5, 2015. 75. JUNE 2015
 - **DEADLIFT**
